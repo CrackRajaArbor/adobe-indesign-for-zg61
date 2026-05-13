@@ -1,4 +1,4 @@
-# 
+# rare Template for Adobe InDesign for macOS - plugin support and cloud sync is the best Adobe InDesign for macOS template, featuring plugin support and cloud sync. Safe, efficient,
 
 
 
